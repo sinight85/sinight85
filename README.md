@@ -1,4 +1,4 @@
-- 👋 Hi there, my name is Shannon!
+- 👋 Hi there, my name is Shannon aka Apple May!
 
 [Check out my 3D art [3D Art Projects]](https://www.flickr.com/photos/applemaydesigns/)
 ## I'm a Mother, Artist, and aspiring Developer
