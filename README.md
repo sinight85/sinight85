@@ -1,7 +1,7 @@
 - 👋 Hi there, my name is Shannon aka Apple!
 
 [Check out my 3D art [3D Art Projects]](https://www.flickr.com/photos/applemaydesigns/)
-## I'm a Mother, Artist, and aspiring Developer
+## Avid learner, Artist, and aspiring Developer
 
 - 📫 Connect with me on LinkedIn (https://www.linkedin.com/in/shannon-inight/)
 <!---
