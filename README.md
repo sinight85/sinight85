@@ -1,4 +1,4 @@
-- 👋 Hi there, my name is Shannon aka Apple!
+- 👋 Hi there!
 
 [Check out my 3D art [3D Art Projects]](https://www.flickr.com/photos/applemaydesigns/)
 ## Avid learner, Artist, and aspiring Developer
