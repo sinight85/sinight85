@@ -1,7 +1,7 @@
 - 👋 Hi there!
 
 [Check out my portfolio](https://www.inightportfolio.com/)
-## Avid learner, Artist, and Web Developer
+## Avid learner, Product Designer, Graphic Designer, and Web Developer
 
 - 📫 Connect with me on LinkedIn (https://www.linkedin.com/in/shannon-inight/)
 <!---
